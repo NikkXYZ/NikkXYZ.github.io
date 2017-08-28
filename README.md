@@ -1,1 +1,1 @@
-# NikkXYZ.github.io
+# When you want to die :)
